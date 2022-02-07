@@ -1,1 +1,0 @@
-# aminao.github.io
